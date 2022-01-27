@@ -1,5 +1,5 @@
 # demo
-creating for development
+the thing i wanted to tell everyone is 
 utkarsh shrivastava
 20yrs 11months 
-favorite color is yellow and red 
+favorite color is pink 
